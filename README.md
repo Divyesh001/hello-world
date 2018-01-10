@@ -1,12 +1,3 @@
 # hello-world
 just another repository
-nvfhnbmnmbmmn
-cfdgvhb
-
-
-
-
-
-
-
-jhjfghjkjlkjhgfdrdytyiuyhikjlk/,.mnb 
+hello hello double hello
